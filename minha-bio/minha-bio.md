@@ -1,0 +1,3 @@
+Sou jonathan! Morador da cidade de caieiras- SP.
+Cursei psicologia durante dois anos e meio, porém, precisei trancar o curso no 6º semestre. Cursei em uma escola de artes e games chamada, SAGA, durante um ano, onde desenvolvi mais a habilidade em desenhos digitais. Atualmente estou estudando programação na Labenu!
+Tenho uma grande paixão por jogos, principalemente em jogos de luta e aventura e, também louca paixão por, League of Legends.
